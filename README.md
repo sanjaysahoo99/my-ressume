@@ -6,4 +6,5 @@ Gmail:
   sanjaykumarsahoo159159@gmail.com
 
 Linkedin:
-  www.linkedin.com/in/sanjay-kumar-sahoo-1387853a7
+  www.linkedin.com/in/sanjay-kumar-sahoo-1387853a7 (Blocked)
+  www.linkedin.com/in/sanjay-kumar-sahoo-999fr (Latest)
